@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Mubeen-Ahmad
+- 👀 I’m interested in cyber Security
+- 🌱 I’m currently learning Artificial intelligence
+- 👉 Follow me on Facebook <a href=https://www.facebook.com/Sweeterror404/>click Here</a>
+- 👉 Like my Facebook Page <a href=https://www.facebook.com/Sweeterror404/>Anonmyous</a>
+- 👉 Follow my 2nd Github <a href=https://www.github.com/Sweeterror404/>Sweeterror404</a>
